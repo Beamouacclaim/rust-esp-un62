@@ -1,4 +1,4 @@
-
+Clandestino rust-traps menu de mods é o melhor rust-traps menu de mods com sem recuo e mira automática. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
